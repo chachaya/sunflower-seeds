@@ -1,2 +1,2 @@
 # sunflower-seeds
-shinny like a dimaonds
+shinny like a dimaond
